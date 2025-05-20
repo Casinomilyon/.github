@@ -1,6 +1,6 @@
 # 🎰 Casinomilyon'a Giriş
 
-👉 **[Bu siteye giriş için tıklayın](https://www.casinomilyon.com)** 👈
+👉 **[Bu siteye giriş için tıklayın](https://shorterflix.com/cmghst01)** 👈
 
 ---
 
